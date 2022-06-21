@@ -1,1 +1,1 @@
-"Am the most complete AI sceintist in the Continent"
+"Am the most complete Software sceintist in the Continent"
